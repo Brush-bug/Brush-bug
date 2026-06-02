@@ -6,4 +6,4 @@
 
 　 　　　　
 
-[⋆𝒢𝓊𝓃𝓈.𝓁𝑜𝓁⋆]https://guns.lol/2ugurugeto() - [⋆𝒶𝓉𝒶⋆](https://2uguruget.atabook.org/) - [⋆𝒯𝒾𝓀𝓉𝑜𝓀⋆](https://www.tiktok.com/@2ugurugeto)
+[⋆𝒢𝓊𝓃𝓈.𝓁𝑜𝓁⋆](https://guns.lol/2ugurugeto) - [⋆𝒶𝓉𝒶⋆](https://2uguruget.atabook.org/) - [⋆𝒯𝒾𝓀𝓉𝑜𝓀⋆](https://www.tiktok.com/@2ugurugeto)
