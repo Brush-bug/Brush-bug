@@ -7,3 +7,6 @@
 　 　　　　
 
 [⋆𝒢𝓊𝓃𝓈.𝓁𝑜𝓁⋆](https://guns.lol/2ugurugeto) - [⋆𝒶𝓉𝒶⋆](https://2uguruget.atabook.org/) - [⋆𝒯𝒾𝓀𝓉𝑜𝓀⋆](https://www.tiktok.com/@2ugurugeto)
+
+
+<img width="540" height="225" alt="image" src="https://github.com/user-attachments/assets/b4b5b4be-7e2a-4481-983a-79f946fa36f0" />
